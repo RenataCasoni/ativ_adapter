@@ -1,2 +1,2 @@
-Nome: Mateus Felipe Brunetti dos Santos, RA: 22012698-2
-Nome: Vitor Galetti Martins, RA: 22019959-2
+Gabriel Franzoi, R.A.: 24463299-2,
+Renata Heloisa Saraiva Casoni, R.A.: 22272753-2
